@@ -29,7 +29,9 @@ Born in Tokyo in 1984, He completed graduate studies in information design at Ta
 After working for a design firm and a period as a freelancer, he joined HAUS as a technical director / prgorammer.
 
 In addition to creating interactive exhibits for commercial and public facilities and providing technical production support for artists, such as yang02, Goro Murayama.
+
 He also makes installations that deal materially and thematically with technologies related to computers.
+
 Exhibitions: Solo exhibition "Listening Test" (Gallery SOBO, Tokyo), "[21th] Japan Media Arts Festival" (So Kanno + yang02 "Avatars" / The National Art Center, Tokyo), "Aichi Triennale 2019" (Goro Murayama "Decoy-Walking" / Aichi Prefectural Museum of Art, Aichi), "Roppongi Crosssing 2022: Coming & Going" (yang02 "Installation in Progress" / Mori Art Museum, Tokyo).
 
 
